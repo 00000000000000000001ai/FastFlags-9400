@@ -28,5 +28,5 @@ We reserve the right to terminate or suspend access to the Bot at any time, with
 We may update these Terms from time to time. Any changes will be posted on this page, and it is your responsibility to review these Terms periodically. Your continued use of the Bot after any changes constitutes acceptance of the new Terms.
 
 9. Contact Information
-If you have any questions about these Terms, please contact us at f1xray007@gmail.com
+If you have any questions about these Terms, please contact us at skibididopdopyesyesysssss1123@gmail.com
 
